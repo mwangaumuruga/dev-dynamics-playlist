@@ -15,3 +15,15 @@
 1. "What's Going On" by Marvin Gaye
 1. "When a Man Loves a Woman" by Percy Sledge
 1. "Ain't No Sunshine" by Bill Withers
+
+### *samkamDev playlist (by Samuel)*
+1. "Go" by  Cat Burns ft Sam smith
+1. "I am listening for the call" by Mark bishop
+1. "All that thrills my soul" by Master promise
+1. "Macegera" by Kwame giri
+1. "S.O.K.O " by kinoti ft Modest Chabari
+1. "Beautifully" by Fave
+1. "Manzese" by Navy Kenzo
+1. "Kubali" by Brandy Maina
+1. "All of me" by John Legend
+1. "Witness" by Ethan Muziki
