@@ -1,2 +1,2 @@
-# Music collections
-## (We are just doing this to learn collaboration in github)
+## Music collections
+### (We are just doing this to learn collaboration in github (theJitu))
